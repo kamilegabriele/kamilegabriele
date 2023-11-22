@@ -4,5 +4,10 @@
 
 - 🍒 estou estudando no alura 
 
--meu insta: yb._kamile 
+-ig: yb._kamile ❕
 
+- yeeee!
+
+- 💋
+
+![.](https://media.tenor.com/QwGAReYGONYAAAAi/petting-cat.gif) 
